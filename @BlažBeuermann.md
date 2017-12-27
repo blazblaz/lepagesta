@@ -32,7 +32,9 @@ Before I was taken to an examination at psychiatry Ljubljana Polje I stated that
   
 (20.12.2017, Univerzitetna bolnišnica Ljubljana Polje)
 Me: "Do you have a trash can for recycling bio waste?"
+
 Technician: "No, does it matter?"
+
 Me: "Depends where you wish to see plants grow from, a dump or a garden."
 
 (21.12.2017, Univerzitetna bolnišnica Ljubljana Polje)
