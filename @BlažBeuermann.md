@@ -45,7 +45,6 @@ After, I went to the techincs on the floor, asking if I could use my one phone c
 - Alan Parson's project - Eye in the sky
 
   Any requests for transcribing lyrics of well known songs?
-- 
 
   "Check these out" kind of spontaneous section:
 - Drazen Zecic - Sokole 2011 (tekst)
