@@ -29,6 +29,11 @@ Before I was taken to an examination at psychiatry Ljubljana Polje I stated that
 
 (17.12.2017, Univerzitetna bolnišnica Ljubljana Polje)
   I have met with a court expert (judge), transcriptor, a psychiatric expert and a lawyer. I would request if they would tell me what they have, but instead the judge said that she would be leading the process. I have told them again about the surrounding story, and how these actions were a mirror of the suppresed societal happening surrounding migrations, ignored outside and at home, and that I have applied a small amount of wrongdoings (domestic violence). Even though this was grounded in reason and actuality, I would still get a recommendation to take medicine for my psychosis (ungrounded at that point, without any halucinations or reasonable facts) - and all this even before the examining team would recognize what I am sacrificing with this, my past losses of my social network after medical treatment for psychosis and with my current opportunities and people waiting on me.
+  
+(20.12.2017, Univerzitetna bolnišnica Ljubljana Polje)
+Me: "Do you have a trash can for recycling bio waste?"
+Technician: "No, does it matter?"
+Me: "Depends where you wish to see plants grow from, a dump or a garden."
 
 (21.12.2017, Univerzitetna bolnišnica Ljubljana Polje)
 - Today, after finding out yesterday during a window of 15:00 - 16:45 online that I cannot use Facebook or Gmail to respond, I would skip lunch to see the psychiatric team leaving the office without calling me in (they called in most of the people there). Doctor said that we are waiting for the court's decision before starting treatment with medicine, which I would refuse and get forcefully imposed in my body. I have told my psychiatrist about my internet problem and about my losses, already having grounded that this is not a psychosis (also with my past record of such experiences, and my non-record of aggressive communication). They don't have reason to assume I would flee the country, and I could easily wait for this decision outside of the closed psychiatric environment.
@@ -41,13 +46,15 @@ After, I went to the techincs on the floor, asking if I could use my one phone c
 - Red Hot Chilli Pepers - Scar tissue (refrain)
 - RHCP - Californication
 - Coldplay - Speed of sound
-- Outlandish - Aisha
+- Outlandish - Aisha (this one made a person shine his roots with a smile)
 - Alan Parson's project - Eye in the sky
 
-  Any requests for transcribing lyrics of well known songs?
-
-  "Check these out" kind of spontaneous section:
+  "Any requests for transcribing lyrics of well known songs?" turned into "Check these out" kind of spontaneous section:
 - Drazen Zecic - Sokole 2011 (tekst)
 - Drazen Zecic - Nitko Nema Dva Zivota
 - Šerif Konjević (iz gornje Sanjice)
 - petraskarja.com/zivljenje-je-trpljenje/
+
+
+
+(25.12.2017, Univerzitetna bolnišnica Ljubljana Polje)
