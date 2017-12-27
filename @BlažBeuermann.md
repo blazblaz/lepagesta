@@ -55,6 +55,14 @@ After, I went to the techincs on the floor, asking if I could use my one phone c
 - Šerif Konjević (iz gornje Sanjice)
 - petraskarja.com/zivljenje-je-trpljenje/
 
+  Chats on that day with one technician
+- Technician: "Who are you?" Me: "Vegetarian" Techinician: :D
+- Technician: "How is your last name written?" Me: "In small, because I write prettier so. Vegetarian"
 
+  After I came out of the toilet and having refused drugs (medicine) for the last week, I was waited for on the outside. I refused to take it in peacefully, so they took me to a nearby bed by force, pulled down my pants and infused the drug intramuscularly. I thought that the court commission's answer to proceed with treatment has already arrived.
 
 (25.12.2017, Univerzitetna bolnišnica Ljubljana Polje)
+Cauliflower vegan burger was a nice idea for dinner. I have that I have received medicine prior to the consclussion of court commission process - their reasons were the following: it's unethical to host a pacient who doesn't take drugs; I was acting a bit odd, singing and saying that I was a vegetarian. Regardless of their obligable way, to treat with medicine parallel to any psychological tests, and that I was so losing time there, we had made a vocal agreement with the psychiatrist, which they did not respect - instead, I was forcefully given their treatment, which I wanted to avoid to keep a clear mind.
+
+(26.12.2017, Univerzitetna bolnišnica Ljubljana Polje)
+Breakfast - Oatmeal with fruit mixin; Change in drugs (solid state to liquid state);
